@@ -1,0 +1,1 @@
+kd esse jogo
